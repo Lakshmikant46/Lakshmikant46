@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lakshmikant46
+- 👋 Hi, I’m @Laxmikant
 - 👀 I’m interested in Macro , firms and trade.
 - 🌱 I’m currently learning how the labor market power of firms in India causes misallocation of resources.
 - 💞️ I’m looking to for reseach assistantships who is working on Markups and Markdown estimation of firms.
